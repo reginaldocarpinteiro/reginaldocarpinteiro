@@ -4,6 +4,7 @@
 -🥵  explosivo e posturado
 - 🤗 um fã secreto do Eduardo Costa 
 - 🤐 adoro refri sem gás 
+-😍  amo a sisi
 
 <!---
 reginaldocarpinteiro/reginaldocarpinteiro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
